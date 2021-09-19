@@ -1,1 +1,0 @@
-# programmimg-kirpicheva-ulyana
